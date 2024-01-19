@@ -1,5 +1,3 @@
-# Approved Salads
-
 ## Tuna Pot
 * 2 peppers
 * 2 shallots
