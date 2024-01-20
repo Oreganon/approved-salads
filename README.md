@@ -31,3 +31,22 @@ Dressing
 * salt
 
 Enough for 3 days.
+
+## Riced Salad
+* 1 bag of brown rice
+* 1 can of corn
+* 2 red bell peppers
+* 1 can of corona beans (will leave out next time)
+* 2 shallots
+* 1 cucumber
+* 200g of feta cheese
+* 150g cherry tomatoes
+* 50g pine nuts
+* 1 tsp honey
+* dill
+
+Dressing
+* olive oil
+* salt
+
+Seems enought for 5 days, but TBD
