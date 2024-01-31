@@ -49,4 +49,17 @@ Dressing
 * olive oil
 * salt
 
-Seems enought for 5 days, but TBD
+Enough for 4 days
+
+## Onion Tuna
+* 2 cans of tuna
+* a bunch of leeks
+* a bunch of radishes
+* 1 shallot
+* 1 cucumber
+
+Dressing
+* olive oil
+* salt
+* bavarian sweet mustard 
+
